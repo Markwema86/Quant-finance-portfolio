@@ -2,7 +2,7 @@
  
 **Mark Wema** | BSc Computer Science (Kenya) | Data Science · Quantitative Finance · Applied AI
  
-[LinkedIn](www.linkedin.com/in/mark-wema-385193328) · [Email](mailto:markwema507@gmail.com)
+[LinkedIn](https://linkedin.com/in/mark-wema-385193328) · [Email](mailto:markwema507@gmail.com)
  
 ---
  
